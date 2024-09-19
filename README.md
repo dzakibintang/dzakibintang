@@ -2,7 +2,7 @@
 - 👀 I’m interested in sport
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on google
-- 📫 How to reach me @dzakkii
+- 📫 How to reach me @dzzakkii
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i like fried rice
 
